@@ -7,3 +7,4 @@
 
 ##  Socials
 [LinkedIn](https://www.linkedin.com/in/hal-bajari-594301138/)
+[Facebook](https://www.facebook.com/profile.php?id=61556754013195)
